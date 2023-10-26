@@ -5,7 +5,7 @@ Veja as comidas principais de alguns países do mundo.
 **Paraná**
 **Barreado**
 
-**São Paulo**
+**São Paulo:**
 **Bauru**
 
 **Rio Grande do Sul**
