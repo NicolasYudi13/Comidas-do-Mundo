@@ -2,14 +2,22 @@
 Veja as comidas principais de alguns países do mundo.
 **Comidas dos estados brasileiros**
 
-**Paraná**
-**Barreado**
+**Aqui no Paraná temos uma gastronomia muito boa, uma das melhores gastronomias do Brasil**
 
-**São Paulo:**
-**Bauru**
+Paraná:
+Barreado
 
-**Rio Grande do Sul**
-**Churrasco**
+**Em Sâo Paulo, o pão caseiro, com uma mortadela fresquinha impressiona todos que pisam naquela região**
 
-**Minas Gerais**
-**Pão de queijo**
+São Paulo:
+Bauru
+
+**Apreçie a melhor produção de grãos do Brasil, são todosa integrais, naturais, e muito saboroso.**
+
+Rio Grande do Sul:
+Churrasco
+
+**Mas bah guri, coma este pão de queijo**
+
+Minas Gerais:
+Pão de queijo:
