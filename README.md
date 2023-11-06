@@ -26,3 +26,6 @@ Churrasco:É  um método de preparação de carne, geralmente usado na grelha, o
 Minas Gerais:
 Pão de queijo: Bolinho salgado, geralmente pequeno e assado no forno, feito com polvilho, ovos, leite, manteiga ou óleo vegetal e queijo ralado.
 
+<h1>Uma mistura de delícias, A COMIDA TÍPICA DO ACRE:<h1>
+
+Acre: Baixaria
